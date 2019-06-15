@@ -1,0 +1,1 @@
+# fushidaze.github.io
